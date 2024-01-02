@@ -1,6 +1,6 @@
-### The ONLY Official Leksicaly Approved Lexicon Of Leksical Intellectuals 😎:
-## Pro - Nouns: Ski/Bidi/Toi/Let
-## Fact: I win
+## The ONLY Official Leksicaly Approved Lexicon Of Leksical Intellectuals 😎:
+### Pro - Nouns: Ski/Bidi/Toi/Let
+### Fact: I win
     
 
 <!--
